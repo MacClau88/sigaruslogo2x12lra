@@ -1,0 +1,1 @@
+# sigaruslogo2x12lra
